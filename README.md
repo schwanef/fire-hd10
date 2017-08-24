@@ -1,0 +1,1 @@
+# samsung-grand-duos-gt9082
